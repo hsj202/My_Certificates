@@ -1,2 +1,2 @@
 # My_Certificates
-All certifiacted and achievement documents earned bt Mr. Abhijeet Singh are uploaded here.
+All certifiacted and achievement documents earned by Mr. Abhijeet Singh are uploaded here.
